@@ -1,1 +1,1 @@
-# Neemiracle-AUG2024-B2
+# Neemiracle-AUG2024-B2 INTERNSHIP PROJECTS
